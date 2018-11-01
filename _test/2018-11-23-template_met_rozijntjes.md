@@ -19,6 +19,7 @@ categories:
   - vegetarisch
   - bijgerechten
   - hartigDivers
+  - Je kan hier meerdere categoriën laten staan
 featured_image: /Fabilicious/images/Rozemarijn-knoflookolie 1200SM.jpg
 recipe:
   servings: 1 zalige template
