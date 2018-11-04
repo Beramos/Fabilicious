@@ -8,6 +8,7 @@ recipe:
   servings: 
   ingredients_markdown: |-
     * 200g boter ( op kamertemperatuur )    * 100g poedersuiker     * 300g bloem    * 1 eierdooier    * 20g cacaopoeder ( gezeefd )    * Snuifje zout
+
 ---
 De boeken van patissier Jef Damme uitgegeven eind de jaren ’80 heb ik als autodidact verslonden.Van koekjes, chocolade, gebak en taarten tot ijs en sorbet.Was toen heel vernieuwend niet enkel voor de hobbybakker, maar ook voor de professionele bakkers.Zelfs vandaag kan ik bij de patisseries zijn creaties eruit pikken. Ook hotelschool Spermalie, waar ik enkele jaren geleden 2 modules patisserie volgde, gebruikt nog veel van zijn recepten.De boeken zijn jammer genoeg niet meer verkrijgbaar, enkel op 2de hands worden ze sporadisch eens te koop aangeboden.
 
