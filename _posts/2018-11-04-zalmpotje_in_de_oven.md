@@ -13,4 +13,6 @@ Waar ik dit recept heb gehaald kan ik mij niet meer herinneren.Maar het komt na
 
 <!--more-->
 
-Smeer een ovenschotel in met wat olijfolie.Leg de zalm erin met het gerookt spek er bovenop.Vul aan met de aardappelschijfjes,de stukjes tomaat en de room.Kruiden met wat peper, zout en dragon.Bakken op 200° 15 à 20 minuten. Afhankelijk van de dikte van de zalm.
+Smeer een ovenschotel in met wat olijfolie.Leg de zalm erin met het gerookt spek er bovenop.Vul aan met de aardappelschijfjes en de stukjes tomaat.Kruiden met wat peper, zout en dragon.
+Overgiet met de room.
+Bakken op 200° 15 à 20 minuten. Afhankelijk van de dikte van de zalm.
